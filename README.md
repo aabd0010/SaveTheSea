@@ -1,4 +1,4 @@
-# SAVE THE OCEAN
+# SAVE THE SEA
 
 ## What it does
 
